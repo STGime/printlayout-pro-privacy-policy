@@ -18,4 +18,4 @@
 
   ## Contact Us
 
-  If you have any questions about this privacy policy, you can contact us at: privacy@tokify.studio
+  If you have any questions about this privacy policy, you can contact us at: privacy@skogsfalken.com
